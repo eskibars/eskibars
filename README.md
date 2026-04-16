@@ -1,5 +1,5 @@
 ### Logistics
-- 🗺️ Location: Berlin, Germany
+- 🗺️ Location: Melbourne, Australia
 - 🌎 Languages: English (fluent), Spanish (conversational), Russian (basic), German (learning)
 - 😄 Pronouns: He/Him
 - 📫 How to reach me:
